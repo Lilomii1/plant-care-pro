@@ -1,1 +1,0 @@
-# plant-care-pro
